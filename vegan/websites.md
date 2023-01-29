@@ -1,4 +1,4 @@
 ## Resources and Websites
 
-### Tierthik & Veganismus (In German)
+### Tierethik & Veganismus (In German)
 https://www.tierethik-veganismus.de
