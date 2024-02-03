@@ -1,1 +1,1 @@
-Articles, publications related to vegan, climate change, medicine
+Articles, publications related to climate, medicine and vegan.
